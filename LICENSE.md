@@ -1,4 +1,4 @@
-
+Ulysses for macOS exclusive Macro - export to PDF and OCR scanning is the best Ulysses for macOS macro, featuring export to PDF and OCR scanning. Safe, efficient, and optimized
 
 
 
